@@ -109,7 +109,7 @@ These Terms shall be governed by and construed in accordance with the laws of En
 
 For questions about these Terms of Service, contact us at:
 
-**Email:** mark@varion.co.uk
+**Email:** admin@tally-fit.com
 
 ## Severability
 
